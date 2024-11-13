@@ -17,3 +17,11 @@ Who I really am:
 
 - a tech head
 - excited about how businesses work
+
+
+On the side for fun I:
+- play the guitar
+- gym
+- read
+- curate playlists
+- watch movies/TV shows
